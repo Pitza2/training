@@ -1,1 +1,1 @@
-# training
+# trainingul meu >:)
