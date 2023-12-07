@@ -1,2 +1,1 @@
-# training
-asta e trainungul meu !
+# training modificat
